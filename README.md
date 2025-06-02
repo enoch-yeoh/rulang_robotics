@@ -20,6 +20,7 @@ https://drive.google.com/file/d/1Kuc5SfU-UWuu9aLuCTDW_aP6cmzydcCN/view?usp=drive
 2023 –  National Robotics Competition (NRC)
 https://drive.google.com/file/d/1FnebBSD8PUAoEM1MQW3eFcKIlpKrZzo1/view?usp=drive_link
 https://drive.google.com/file/d/1A-1m-mmh63rnA44LfXSLtObnkQvV2wwK/view?usp=drive_link
+https://drive.google.com/file/d/18sVpOmzwQVETQG6mOUuhd6U-LgM9AQig/view?usp=drive_link
 
 2023 –  Global Robotics Games (GRG) part in finals
 

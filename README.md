@@ -13,6 +13,7 @@ https://drive.google.com/file/d/1eJyKabW4elrCFjkkkxMg0YcATzLkc07D/view?usp=drive
 
 02 Feb 2024 – Participation (Duck Learning: Jiangsu Province – Singapore Cultural Exchange)
 https://ducklearning.com/blogs/robotics-competition-resources/jiangsu-china-x-singapore-robotics-cultural-exchange-program-robojoy-duck-learning?srsltid=AfmBOopQCKK2LSKqKyQWHUPmmaGSWCeMwpEsPjNmqIA8y4ENUu6XRoMC
+https://drive.google.com/file/d/1U9N5WuvX4Aw_Q9hKzSxYomi-jlYqHrkI/view?usp=drive_link
 https://drive.google.com/file/d/1WHJQVIiuEBvUPTDOvM7GPedb3m8QScWy/view?usp=drive_link
 https://drive.google.com/file/d/1Kuc5SfU-UWuu9aLuCTDW_aP6cmzydcCN/view?usp=drive_link
 
@@ -28,5 +29,5 @@ https://drive.google.com/file/d/1Kuc5SfU-UWuu9aLuCTDW_aP6cmzydcCN/view?usp=drive
 [https://drive.google.com/file/d/1Kuc5SfU-UWuu9aLuCTDW_aP6cmzydcCN/view?usp=drive_link](https://drive.google.com/file/d/18zUVMi5-QSV4VcZyACBote8UWTrS9fko/view?usp=drive_link)
 
 2021 – Best Design (P2 Lego Wall Competition)
-
+https://drive.google.com/file/d/15E7w7XSzjYqkXGKKAhyAK7ORuyS_6SyB/view?usp=drive_link
 
